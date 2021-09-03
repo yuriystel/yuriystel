@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yuriystel, I'm a senior in aerospace engineering. 
-- 👀 I’m interested in rocletry and drone tech.
+- 👀 I’m interested in rocketry and drone tech. I have more hobbies than time, or maybe I'm just very good at wasting time. My favorites would be playing video games, bodybuilding and sh\*t posting online
 - 🌱 I’m currently learning how to use Git and Github
 - 💞️ I’m looking to collaborate on ~~Homework collaboration is prohibited and will land you in the office of the dean. Any colaboratory homework will recieve a grade of zero, further disciplinary actions will be taken.~~ on group projects
 - 📫 How to reach me @ stelmakh.iastate.edu
